@@ -1,2 +1,2 @@
 # GTPS7
-- PERFECTO KEK KONTOL LOE
+- PERFECTO KEK KONTOL LOE awikwok 😂😂😂😂😂😂😂😂😂😂😂😂😂
