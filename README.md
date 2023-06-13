@@ -1,4 +1,4 @@
 # GTPS7
 - PERFECTO KEK KONTOL LOE awikwok 😂😂😂😂😂😂😂😂😂😂😂😂😂
-
+SERVER_PORT = 55439
 ~ : LEAKED BY TRON & BRIGHVER : ~
